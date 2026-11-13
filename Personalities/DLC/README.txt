@@ -1,0 +1,1 @@
+This readme is not part of the Furby, this is to inform YOU, the user. That the DLC is considered a personality in the Furby (for some reason) so anything from a DLC, will be in a Personality slot in YOUR Furby!
